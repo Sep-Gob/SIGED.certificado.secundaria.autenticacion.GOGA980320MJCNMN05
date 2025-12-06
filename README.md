@@ -1,0 +1,2 @@
+# SIGED.certificado.secundaria.autenticacion.GOGA980320MJCNMN05
+GOGA980320MJCNMN05
